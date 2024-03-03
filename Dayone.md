@@ -33,3 +33,17 @@ Time machine 真是好东西, 我几乎没花精力折腾电脑, 新电脑就可
 仅此而已.
 
 ---
+
+20240303 Sunday
+
+1.交互 Taiko 的2个 Galxe 任务
+
+1.1 [Beyond Mainnet The Road to Taiko’s BBR: Video, Quiz & Showcase](https://galxe.com/taiko/campaign/GCcSkt47pX)
+
+1.2 [Taiko x Guild: Define Your Role](https://galxe.com/taiko/campaign/GC2qNt4v6M)
+
+2.
+
+
+
+---
